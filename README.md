@@ -1,0 +1,5 @@
+- Hi, I’m NICK;
+- Self taught english speaker and artist;
+- I’m interested in drawing, fighting games, FPS games, reading, music and exercising;
+- I’m currently learning some stuff, nothing too professional though;
+- Currently not trying to be reached.
